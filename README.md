@@ -1,0 +1,1 @@
+# Trademark-including-DX-in-Japan
