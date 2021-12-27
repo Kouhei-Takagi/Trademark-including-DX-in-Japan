@@ -1,1 +1,3 @@
 # Trademark-including-DX-in-Japan
+
+For my blog pages...
